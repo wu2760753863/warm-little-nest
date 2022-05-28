@@ -1,2 +1,2 @@
 # warm-little-nest
-One exercise
+My hobbies are code, games and guitar
